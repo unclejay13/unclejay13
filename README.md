@@ -1,4 +1,4 @@
-Hi! it's KoolJay. Nice to meet you!😋
+Hi! This is KoolJay. Nice to meet you!😋
 - Contact me on: 
 - 📧E-mail: pimjai0208@gmail.com
 - 🗯️Instagram: unclejayw
