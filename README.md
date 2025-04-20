@@ -1,4 +1,4 @@
-Hi! This is KoolJay. Nice to meet you!😋
+Hi! This is KoolJay. Nice to meet you😋
 I'm a partime developer, fulltime graphic designer!
 
 Contact: 
