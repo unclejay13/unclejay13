@@ -1,5 +1,5 @@
 Hi! This is KoolJay. Nice to meet you!😋
-I'm a partime developer, fulltime graphic designer.
+I'm a partime developer, fulltime graphic designer!
 
 Contact: 
 - 📧E-mail: pattararat13@gmail.com
