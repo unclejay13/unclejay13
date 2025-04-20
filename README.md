@@ -1,7 +1,9 @@
 Hi! This is KoolJay. Nice to meet you!😋
-- Contact me on: 
-- 📧E-mail: pimjai0208@gmail.com
-- 🗯️Instagram: j8yism
+I'm a partime developer, fulltime graphic designer.
+
+Contact: 
+- 📧E-mail: pattararat13@gmail.com
+- 🗯️Instagram: mooopalow
 
 <!---
 unclejay13/unclejay13 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
